@@ -2,7 +2,7 @@
 ### 我是 **_白影的鹰_** ，来自中国(China)
 ###### 小白一个，希望能够在这里学到更多的东西（谢谢大佬men）
 ### 同时我也是bilibili的一个 [**_萌新up主_** (video maker)][1]
-###### 一般更新一些MMD或者游戏视频(game video)
+###### 一般更新一些MAD或者游戏视频(game video)
 ### 一起友好相处吧！
 [1]:https://space.bilibili.com/102736435
 
